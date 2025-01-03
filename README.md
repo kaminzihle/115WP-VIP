@@ -20,9 +20,6 @@
 
 [https://v.115.com/618](https://v.115.com/618)
 
-## 活动二维码
-
-![image](https://github.com/kaminzihle/115WP-VIP/assets/169995374/1085ebde-4eab-4a26-9e8f-63f1126bf96d)
 
 ## 活动说明
 
