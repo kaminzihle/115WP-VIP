@@ -18,7 +18,7 @@
 
 ## 活动地址
 
-[https://v.115.com/618](https://v.115.com/618?f=union&share_code=a7c09b2f98fbca087ba250ca67f787c9#)
+[https://v.115.com/618](https://v.115.com/618)
 
 ## 活动二维码
 
